@@ -1,4 +1,4 @@
-![Image](https://x.com/hsbjz69/status/1893656009396068847/photo/1)
+![Image](https://pbs.twimg.com/media/GkeeE7IasAAO7x-?format=png&name=900x900)
 
 <!--
 **hsbjz/hsbjz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

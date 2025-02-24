@@ -1,8 +1,8 @@
-wired
+gtc warrior sorry that was cringe cringe culture is dead cuuuuuuuuuulture sulfer smoke and soot you learned to torture houce cats and voltures you cocked and sucked your lack of empathy pulled the trigger with you foot to prove youve got blood I can drink your blood till your lips turn blue heart bluer than my balls
 
 
 
-![Image](https://s2.ezgif.com/tmp/ezgif-2a5e860d79bb4e.gif) 
+![Image](-) 
 
 <!--
 **hsbjz/hsbjz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

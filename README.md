@@ -3,7 +3,7 @@ theres supposed to be a gif here but im too lazy
 
 
 
-![Image](https://s2.ezgif.com/tmp/ezgif-28b60f51e95a5.gif) 
+![Image](https://s2.ezgif.com/tmp/ezgif-2a5e860d79bb4e.gif) 
 
 <!--
 **hsbjz/hsbjz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

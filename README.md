@@ -2,7 +2,7 @@ gtc warrior sorry that was cringe cringe culture is dead cuuuuuuuuuulture sulfer
 
 
 
-![Image](-) 
+![Image]([-](https://github.com/hsbjz/hsbjz/issues/2#issue-2875047469)) 
 
 <!--
 **hsbjz/hsbjz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -3,7 +3,7 @@ im willing to would
 
 
 
-![Image](blob:https://x.com/20cb7c45-7297-47ce-a810-bc72b50151af) 
+![Image](https://x.com/20cb7c45-7297-47ce-a810-bc72b50151af) 
 
 <!--
 **hsbjz/hsbjz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

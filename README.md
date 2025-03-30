@@ -1,1 +1,1 @@
-i hate to be "that guy"; but im not that guy anymore (and i made goddamn sure he's dead)
+ideas only spread because people like them, the “free market of ideas” is not a meritocracy, it’s a set of unhealthy coping Skills and a corporate oligarchy, wake up, man! don’t let the lies dim your light!

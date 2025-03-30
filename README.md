@@ -1,1 +1,1 @@
-we are the cicadalings please feed us. Oh god get away from me
+i hate to be "that guy"; but im not that guy anymore (and i made goddamn sure he's dead)

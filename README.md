@@ -1,1 +1,1 @@
-ideas only spread because people like them, the “free market of ideas” is not a meritocracy, it’s a set of unhealthy coping skills and a corporate oligarchy, wake up, man! don’t let the lies dim your light!
+maybe i'll put something here soon

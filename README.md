@@ -1,1 +1,1 @@
-i built a little empire out of some crazy garbage called the blood of the exploited working class but theyve overcome their shyness now theyre calling me your highness and a world screams kiss me son of god
+this cordially inviting lure is sure to let you down

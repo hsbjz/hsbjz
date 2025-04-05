@@ -1,3 +1,3 @@
-this cordially inviting lure is sure to let you down
+its my wish to have a rat someday. My only dream.
 
 [strawpage](https://billbark.straw.page)         [atabook](https://billbark.atabook.org/)

@@ -1,3 +1,3 @@
-its my wish to have a rat someday. My only dream.
+whats a rat doing playing ponytown?
 
 [strawpage](https://billbark.straw.page)         [atabook](https://billbark.atabook.org/)

@@ -1,3 +1,3 @@
-cry like a baby with autism strapped to a ceiling fan
+im not a flower, not a solar-powered calculator
 
 [strawpage](https://billbark.straw.page)   -      [atabook](https://billbark.atabook.org/)

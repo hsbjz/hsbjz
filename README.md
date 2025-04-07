@@ -1,3 +1,3 @@
 im not a flower, not a solar-powered calculator
 
-[strawpage](https://billbark.straw.page)   -      [atabook](https://billbark.atabook.org/) - [?](https://www.youtube.com/watch?v=Kg0hCOqFbtU)
+[strawpage](https://billbark.straw.page)   .     [atabook](https://billbark.atabook.org/)                  .            [What the fuck](https://www.youtube.com/watch?v=Kg0hCOqFbtU)

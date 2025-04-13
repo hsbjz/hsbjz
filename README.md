@@ -1,4 +1,4 @@
-God grant me the serenity
+[God](https://billbark.straw.page/) grant me the serenity
 to accept the things I cannot change;
 courage to change the things I can;
 and wisdom to know the difference.
@@ -11,4 +11,4 @@ Trusting that He will make all things right
 if I surrender to His Will;
 That I may be reasonably happy in this life
 and supremely happy with Him
-Forever in the next.
+Forever in the [next](https://billbark.atabook.org/).

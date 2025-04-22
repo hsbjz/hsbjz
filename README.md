@@ -1,3 +1,3 @@
-> *i'll be your [blessing](https://billbark.straw.page/) in [disguise](https://billbark.atabook.org/).*
+> *when you [die](https://billbark.straw.page/) you will [rot](https://billbark.atabook.org/). sorry its the rules*
 
  

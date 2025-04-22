@@ -1,3 +1,3 @@
-> *theres a [centipede](https://billbark.straw.page/) in my [office](https://billbark.atabook.org/).*
+> *i'll be your [blessing](https://billbark.straw.page/) in [disguise](https://billbark.atabook.org/).*
 
  

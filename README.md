@@ -1,3 +1,3 @@
-> *idk check out my [strawpage](https://billbark.straw.page/) and ummm sign my [atabook](https://billbark.atabook.org/) if you want*
+> *whats the [moon](https://billbark.straw.page/) made of? meet me there after im [gona](https://billbark.atabook.org/)*
 
  

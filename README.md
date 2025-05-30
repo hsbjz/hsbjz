@@ -1,3 +1,3 @@
 <p align="center">
-    <img src="https://media1.tenor.com/m/POvAcI3WNkQAAAAd/will-wood-in-case-i-make-it.gif">
+    <img width:1000 length:500 src="https://media1.tenor.com/m/POvAcI3WNkQAAAAd/will-wood-in-case-i-make-it.gif">
 </p>

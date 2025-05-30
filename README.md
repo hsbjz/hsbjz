@@ -1,5 +1,5 @@
 <p align="center">
-<img [STRAWPAGE](https://billbark.straw.page/)]
+  [STRAWPAGE](https://billbark.straw.page/)]
 </p>
 
 

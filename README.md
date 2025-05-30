@@ -7,6 +7,4 @@
     <img width:1000 length:500 src="https://media1.tenor.com/m/POvAcI3WNkQAAAAd/will-wood-in-case-i-make-it.gif">
 </p>
 
-
-
-> *with the bones of a crow and ambitions of candle wax,*
+                    

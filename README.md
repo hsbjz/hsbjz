@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-MOST SANEST ICIMI FAN THAT IS STILL ALIVE
+SANEST ICIMI FAN THAT IS STILL ALIVE
 </p>
 
                     

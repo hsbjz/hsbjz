@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
- THE MOST SANEST ALIVE WILL WOOD FAN
+ THE MOST SANEST WILL WOOD FAN WHO IS STILL ALIVE
 </p>
 
                     

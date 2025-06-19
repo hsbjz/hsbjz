@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-SANEST ICIMI FAN THAT IS STILL ALIVE
+STOP TALKING TO ME RIGHT NOW I AM GOING TO EXPLODE AHHH
 </p>
 
                     

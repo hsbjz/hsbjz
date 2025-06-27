@@ -1,5 +1,5 @@
 ⠀<p align="center">
-[*atabook*](https://billbark.atabook.org/) *-* [*strawpage*](https://billbark.straw.page/)
+[*atabook*](https://billbark.atabook.org/) ** [*strawpage*](https://billbark.straw.page/)
 </p>
 
 <p align="center">

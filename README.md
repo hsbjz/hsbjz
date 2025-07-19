@@ -1,3 +1,3 @@
 <p align="center">
-[strawpage](billbark.straw.page/) ✦ [atabook](billbark.atabook.org/)
+[strawpage](https://billbark.straw.page/) ✦ [atabook](https://billbark.atabook.org/)
 </p>

@@ -1,5 +1,5 @@
 ⠀⠀<p align="center">
-✦ <a href="https://billbark.straw.page/" style="color: orange; text-decoration: underline;text-decoration-style: dotted;">CLICK ME</a> ✦
+ <a href="https://billbark.straw.page/" style="color: orange; text-decoration: underline;text-decoration-style: dotted;">click me</a> 
 </p>
 
 <p align="center">

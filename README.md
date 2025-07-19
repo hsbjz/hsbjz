@@ -3,5 +3,6 @@
 </p>
 
 <p align="center">
-i like icimi
+what's the puh-point of trying? i'll never amount to
+  anything
 </p>         

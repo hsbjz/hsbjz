@@ -18,6 +18,6 @@
 
 
 <p align="center">
- https://billbark.straw.page/ https://billbark.atabook.org/
+ https://billbark.atabook.org/
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=9&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=ain't+your+you-dentity+at+stake%3F+did+aspirin+kill+you+with+the+pain%3F;you're+not+your+thoughts%2C+you're+not+your+brain%2C;you're+just+the+character+you've+made;up+in+your+head%2C+down+in+your+heart%2C+what+seem+like+separate+body+parts;come+together+to+believe+they're+you%2C+and+not+just+chemistry;its+not+the+way+that+you+were+raised%2C+or+what+the+advertisements+say;not+what+you+pray+for%2C+what+you+pay+for%2C+what+you+want%2C+or+what+you+say;and+i+see+your+tendency+to+redefine+disease+by+what+you+need;and+im+afraid+i+cant+prescribe+the+diagnosis+that+you+seek;and+something+tells+me+that+you+need%2C+forgive+me+now+if+i+misspeak;but+something+tells+me+that+you+like%2C+and+something+tells+me;...;you'd+prefer+to+be+sitting+there+flipping+through+those+old+issues+of+people;well+thats+our+time%2C+see+you+next+week" alt="Typing SVG" /></a>
 </p>

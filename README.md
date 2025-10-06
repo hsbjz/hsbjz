@@ -1,6 +1,11 @@
 
 
 <p align="center">
-<img src="https://as2.ftcdn.net/v2/jpg/03/19/20/21/1000_F_319202173_lChFjDK92X4FwE7pbzfjFueIRrRjkJiL.jpg"/>
+my name hsbjz i like will wood sprunki chnt and various roblox unfictions
+</p>
+
+
+<p align="center">
+ spamholic0 on all socials
 </p>
  

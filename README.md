@@ -1,1 +1,1 @@
-strawpage [here](https://aphfrancois.straw.page)
+Self proclaimed idgafer

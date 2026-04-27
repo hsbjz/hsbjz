@@ -3,7 +3,7 @@
  <br> 
 
 
-[straw](https://hsbjz.atabook.org)⠀⠀⠀⠀[ata](https://billbark.atabook.org)⠀
+[straw](https://hsbjz.straw.page)⠀⠀⠀⠀[ata](https://billbark.atabook.org)⠀
 
 <br>
  ⠀⠀

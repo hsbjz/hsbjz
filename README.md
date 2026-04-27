@@ -1,2 +1,9 @@
-<p align="center">
-  <a href="https://hsbjz.straw.page">click for strawpage  - <a href="https://billbark.atabook.org">click for atabook
+<div align="center">
+
+ <br> 
+
+
+[straw](https://hsbjz.atabook.org)⠀⠀⠀⠀[ata](https://billbark.atabook.org)⠀
+
+<br>
+ ⠀⠀
